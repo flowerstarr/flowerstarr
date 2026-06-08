@@ -12,7 +12,15 @@ W2I ALWAYS
 
 <p align="center"
 
- ◟ ͜𓏴  anti harassment  𓈒 
+ ◟ ͜𓏴  dark ,, com ,, pro  𓈒 
+
+ <p align="center"
+
+ ficto ,, necro ,, objct
+
+  <p align="center"
+
+ turigirl ,, afab ,, tfem ,, multigender ,, lesboy ,, gaybian
 
 
 
